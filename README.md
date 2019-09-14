@@ -1,5 +1,12 @@
 # hello-world
-VLC/SoundCloud Extension
+I am proposing the creation of the following EXTENSION
+
+(VLC/SoundCloud Extension) (4 TWITCH )
+I feel this wud be a VALUABLE TOOL IN THE " TWITCH" COMMUNITY
+
+
+
+
 Cheers GIT FAMILY
 ... I am just a newbie with alot of potential.
 My professional BG consists of the following:
